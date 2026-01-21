@@ -1,3 +1,5 @@
+![](https://github.com/myouimyoui/21stCentury-it-skills/blob/main/Laboratory%203/Profile%20Banner/Linkedin%20profile%20banner.png)
+
 # 💫 About Me:
 comparatively average and wholesome
 
